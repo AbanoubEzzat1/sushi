@@ -3,7 +3,7 @@
 
 <br>
 <br>
-![Sushi-main](https://github.com/AbanoubEzzat1/sushi/assets/95220222/7fb114b8-5868-4ad1-b53c-c8807ca2fe23)
+![Sushi2](https://github.com/AbanoubEzzat1/sushi/assets/95220222/7fb114b8-5868-4ad1-b53c-c8807ca2fe23)
 
 <br>
 <br>
